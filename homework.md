@@ -1,4 +1,4 @@
-7 # DICE DILEMMA
+# DICE DILEMMA
 * Quetion 1:Dana has a 6 sided diewith the numbers 1-6 on it. Write out the pairs of numbers on the opposite sides.
 * Answer 1:5 & 2, 1 & 6, 4 & 3.
 * Question 2:Eilidh also has a 6 sided die. If she rolls twice what he possible results she could get.
