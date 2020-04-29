@@ -21,8 +21,8 @@ gets a FREE ice-cream. Another celabraition day I really like is halloween, beca
  3 different teams there was TNP A, TNP B and TNP C I was in TNP C and TNP B came first in the whole tournament it was such a wonderfull expierence and it is also where i scored my first ever goal for the school football team.
  I brought tons of healthy snack such as dried mango and raisins. It was the best football expierience ive ever had in my whole life and I will never forget it.
  
- One of the funniest expierences ive had in school is when me and my friend John tried to audition for the school talent show. We  did'nt make it
- through but it was still really fun. Me and John did'nt relly reherse so I think that is one of the  reasons we did'nt make it through.
+ One of the funniest expierences ive had in school is when me and my friend John tried to audition for the school talent show. We  didn't make it
+ through but it was still really fun. Me and John didn't relly reherse so I think that is one of the  reasons we didn't make it through.
  when we did finish are act the judges called us cring :(. 
  
  Thank you very much for reading this and until next time goodbye.
