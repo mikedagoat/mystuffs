@@ -17,7 +17,7 @@ Celabraition days are a major part of my school and my favorite clebraition day 
 gets a FREE ice-cream. Another celabraition day I really like is halloween, because my school has a huge Halloween party
  with tons of fun games like apple bobbing and another one where you have to eat the donut that is attached to a string. When celabraition days are finished I get to go home and spend time with mummy.
  
- in P6 and some other people went to cuppa na cloine wich is this gaelic football tournament I really liked an so did all of my friends. in are football team there was 
+ In P6 and some other people went to Cuppa na Cloine wich is this Gaelic football tournament I really liked an so did all of my friends. in are football team there was 
  3 different teams there was TNP A, TNP B and TNP C I was in TNP C and TNP B came first in the hole tournament it was such a wonderfull expierence and it is also where i scored my first ever goal for the school football team.
  I brought tons of healthy snack such as dried mango and raisins. It was the best football expierience ive ever had in my hole life and I will never forget it.
  
