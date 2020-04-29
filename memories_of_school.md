@@ -18,8 +18,8 @@ gets a FREE ice-cream. Another celabraition day I really like is halloween, beca
  with tons of fun games like apple bobbing and another one where you have to eat the donut that is attached to a string. When celabraition days are finished I get to go home and spend time with mummy.
  
  In P6 and some other people went to Cuppa na Cloine wich is this Gaelic football tournament I really liked an so did all of my friends. in are football team there was 
- 3 different teams there was TNP A, TNP B and TNP C I was in TNP C and TNP B came first in the hole tournament it was such a wonderfull expierence and it is also where i scored my first ever goal for the school football team.
- I brought tons of healthy snack such as dried mango and raisins. It was the best football expierience ive ever had in my hole life and I will never forget it.
+ 3 different teams there was TNP A, TNP B and TNP C I was in TNP C and TNP B came first in the whole tournament it was such a wonderfull expierence and it is also where i scored my first ever goal for the school football team.
+ I brought tons of healthy snack such as dried mango and raisins. It was the best football expierience ive ever had in my whole life and I will never forget it.
  
  One of the funniest expierences ive had in school is when me and my friend John tried to audition for the school talent show. We  did'nt make it
  through but it was still really fun. Me and John did'nt relly reherse so I think that is one of the  reasons we did'nt make it through.
