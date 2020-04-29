@@ -23,4 +23,6 @@ gets a FREE ice-cream. Another celabraition day i really like is halloween, beca
  
  One of the funniest expierences ive had in school is when me and my friend John tried to audition for the school talent show. We  did'nt make it
  through but it was still really fun. Me and John did'nt relly reherse so i think that is one of the  reasons we did'nt make it through.
- when we did finish are act the judges called us cring :( thank you very much for reading this and until next time goodbye.
+ when we did finish are act the judges called us cring :(. 
+ 
+ Thank you very much for reading this and until next time goodbye.
