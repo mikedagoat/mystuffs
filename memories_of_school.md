@@ -3,8 +3,7 @@
  
  In August I will be going to high school so here's a few paragraphs about my best experiences in Bun Sgoil Taobh na Pairce.
  
-#### When I went on the school trip to Glen Mor, it was the highlight of P7 for me. I had an outstanding time even though the food was horrible
-. When we did orienteering I had such a fun time with Alex because we took a ''Short cut'' through a bog and we both got soaked. To get to Glen Mor we 
+#### When I went on the school trip to Glen Mor, it was the highlight of P7 for me. I had an outstanding time even though the food made me feel sick. When we did orienteering I had such a fun time with Alex because we took a ''Short cut'' through a bog and we both got soaked. To get to Glen Mor we 
 had to take a 3 AND A HALF HOUR BUS RIDE!. I got to sleep in a room with Hector and stay up until 10pm making bracelets when me an Hector's friend ,Lachie's roommate James was snoring in the middle of the night he got to have a sleep over with me and Hector because he could not sleep in his room.
 Then we took a coach all the way back to school.
 
