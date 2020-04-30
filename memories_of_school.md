@@ -17,7 +17,7 @@ Celebration days are a major part of my school and my favorite celebration day i
 gets a FREE ice-cream. Another celebration day I really like is halloween, because my school has a huge Halloween party
  with tons of fun games like apple bobbing and another one where you have to eat the donut that is attached to a string. When celebration days are finished I get to go home and spend time with Mummy.
  
- In P6 and some other people went to Cuppa na Cloine wich is this Gaelic football tournament I really liked an so did all of my friends. in are football team there was 
+ In P6 and some other people went to Cuppa na Cloine which is this Gaelic football tournament I really liked an so did all of my friends. in are football team there was 
  3 different teams there was TNP A, TNP B and TNP C I was in TNP C and TNP B came first in the whole tournament it was such a wonderful experience and it is also where i scored my first ever goal for the school football team.
  I brought tons of healthy snack such as dried mango and raisins. It was the best football experience ive ever had in my whole life and I will never forget it.
  
