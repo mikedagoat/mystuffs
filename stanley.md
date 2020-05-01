@@ -1,2 +1,2 @@
-Stanley yelnats came from a poor family living in a tiny apartment.Stanley was very unlucky and thought he was cursed with bad luck because his no good dirty rotten pig stealing great great grandfather stole a pig from a one legged gypsy and the gypys cursed stanley great great grandfather forever
+Stanley yelnats came from a poor family living in a tiny apartment.Stanley was very unlucky and thought he was cursed with bad luck because his no good dirty rotten pig stealing great great grandfather stole a pig from a one legged gypsy and the gypys cursed stanley's family forever. stanleys father was an inventor but every time he did an expirament it failed. He loved his mother and promesed he would wright to her at least once a week.
 
