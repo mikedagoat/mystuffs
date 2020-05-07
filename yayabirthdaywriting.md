@@ -1,4 +1,4 @@
-Normally on your birthday you would eat cake with you FRIENDS . You could buy your cake from a shop or make it yourself. Last year I made my own birthday cake with Niall and I ate about half the icing I also blew out all of the candels in one go
+Normally on your birthday you would eat cake with you FRIENDS . You could buy your cake from a shop or make it yourself. Last year I made my own birthday cake with Niall and I ate about half the icing I also blew out all of the candels in one go.
 
   Normally I like to have sleepover with my friends. Last year I had a sleep over in my backgarden with all of my friends and had an amazing time. Everybody brought a sleeping bag,pijamas and a toothbrush and we all stayed up super late.
 
