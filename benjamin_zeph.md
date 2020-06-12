@@ -23,7 +23,8 @@ changing peeps hu cud help change the world
 wrote abou racial disrimaation veganism hebitat loss refugees too much money
 poetry famous big impact 
 on tv
-was offered an obe but refused because obe stands for order of the british empire and he thunk that empire symbolises black slavery
+was offered an obe but refused because obe stands for order of the british empire and he thought that empire 
+symbolises black slavery
 his music is great and he is influenceing the world in a good way
 
 
@@ -39,5 +40,8 @@ as a teen he got into trouble with the police and he went to stay with his grand
 
 when he returned home, he built his reputation and tried to help the world through his peotry and writing. he wrote about things such as racial discrimanation, veganism, habitat loss, refugees and too much money. his poetry isn't classic peotry its poetry combined with reaggea.he performed all over the country in tons of different venues
 
-his music is great and he is influenceing the world in a good way
+as a result of his work he was offered an obe but refused because obe stands for order of the british empire and he thought that empire 
+symbolises black slavery, he also given alot of other awards.
+
+ i think Benjiman Zephanaih's music,books and poetry are great and he is influenceing the world in a good way.
 
